@@ -2,7 +2,7 @@
 - 👀 I’m interested in SQL, Python (sentiment analysis)
 - 🌱 I’m currently finding my way around Python
 - 💞️ I’m looking to collaborate on ...very curious, still figuring it out!
-- 📫 How to reach me katrinabennettwork@gmail.com
+- 📫 How to reach me: 165782850+R212Worx@users.noreply.github.com
 - 😄 Pronouns: she / her
 - ⚡ Fun fact: I like drawing with pens.
 
